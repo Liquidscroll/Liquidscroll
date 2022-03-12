@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Liquidscroll
+- 👀 I’m interested in rock climbing and robots!
+- 🌱 I’m currently learning Bach. Comp. Sci.
+- 💞️ I’m looking to collaborate on everything!
